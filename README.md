@@ -1,1 +1,1 @@
-# GoldFireDragon.UnCensordbrowser.co.jp-search-safe-off-gl-jp-hl-ko-desltop-true
+# http://www.google.co.jp/
